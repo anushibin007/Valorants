@@ -1,10 +1,10 @@
 # Valorants
 
 # Whatsapp Group
-https://chat.whatsapp.com/G8IiriYftnwDGFDA0C8m2H
+https://chat.whatsapp.com/G8IiriYftnwDGFDA0C8m2H (highly active)
 
 # Discord Group
-https://discord.gg/wygFuW
+https://discord.gg/fFvKeC52 (rarely used)
 
 # Members
 | Name | Riot ID |
