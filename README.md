@@ -1,5 +1,10 @@
 # Valorants
 
+# Who we are
+This is a very friendly group of players. We do not troll or trash talk players who are new to the game. Everyone is welcome to play with us. Even if we lost a whole comp match 12-13 because you missed an easy clutch, we don't care 😊<br>
+We are all friends here and are here to learn, support & improve.<br>
+Remember: <i>Every master was once a student</i> 😇
+
 # Whatsapp Group
 https://chat.whatsapp.com/G8IiriYftnwDGFDA0C8m2H (highly active)
 
