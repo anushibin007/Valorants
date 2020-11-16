@@ -10,7 +10,7 @@ https://discord.gg/fFvKeC52 (rarely used)
 | Name | Riot ID |
 |------|---------|
 | Shibin | jasAdmin#noob |
-| Mani Teja | ManiTeja#7557 |
+| Mani Teja | ManiTeja#noob |
 | Pramod | EktaTiger#9493 |
 | Shivam | Fisheye#2444 |
 | Leon | nibbaaa7#4571 <br> imNub7#5580 |
