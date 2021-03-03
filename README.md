@@ -14,7 +14,7 @@ https://discord.gg/fFvKeC52 (rarely used)
 # Members
 | Name | Riot ID |
 |------|---------|
-| Shibin | jasAdmin#noob |
+| Shibin | jasAdminNonToxic#noob |
 | Mani Teja | ManiTeja#noob |
 | Pramod | EktaTiger#9493 |
 | Shivam | Fisheye#2444 |
